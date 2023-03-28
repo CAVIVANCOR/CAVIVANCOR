@@ -9,5 +9,7 @@ Soy un Profesional en Computacion e Informatica especializado en desarrollo de s
 - Paso siguiente creare e una red social para los amantes del futbol
 
 Pueder conocer mas de mi trabajo en mi pagina web: https://www.13elfuturohoy.com/
+Email: sistemas.cavr@13elfuturohoy.com
+Celular: 511-949101509
 
 -->
